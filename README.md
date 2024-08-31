@@ -1,3 +1,5 @@
+![Profile Image](https://i.imgur.com/dhEYvE8.png)
+
 # 💫 About Me:
 🎮 Gamer at heart<br>📚 Student in progress<br>⚔️ Always up for a challenge<br>🚀 Learning new things<br>📷 Streams on the internet
 
